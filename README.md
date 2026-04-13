@@ -1,5 +1,4 @@
 - 👋 Hola Soy Miguel Hernandez
-- Numero de cuenta 20181033312
 - 
 - 
 
